@@ -1,5 +1,5 @@
 # My_political_plan_for_planet_Earth
-This is my political plan for planet Earth. See README file: 
+This is my political plan for planet Earth. 
 
 "In the 1880's, \[Otto von\] Bismarck worked on preventing the spread of Socialism \[Communism\] by creating a welfare state, establishing national healthcare, accident insurance, and old age pensions \[what we now call 'Social Security' and 'Social Security Disability Insurance' in the USA\]"
 
