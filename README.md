@@ -15,4 +15,4 @@ https://www.reddit.com/u/John-The-Bomb-2/s/F6HZGd5jR0
 If you can't get into Reddit here is the same post on Instagram: 
 https://www.instagram.com/p/C7dvWwiuTFB/ 
 
-Edit: I will never be King of Planet Earth so this doesn't matter. I still want one big global country with one big global disability program.
+**Edit:** I will never be King of Planet Earth so this doesn't matter. I still want one big global country with one big global disability program.
